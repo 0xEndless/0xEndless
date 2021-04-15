@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @0xEndless
+- I’m currently sleeping 24/7 because I have no idea what to do.
